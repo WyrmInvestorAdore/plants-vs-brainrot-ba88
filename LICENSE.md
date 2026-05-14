@@ -1,4 +1,4 @@
-#  
+#  instant plants vs brainrots Script is the best plants vs brainrots Script, featuring auto-sell and instant win. Safe and powerful for all your needs.
 
 
 
